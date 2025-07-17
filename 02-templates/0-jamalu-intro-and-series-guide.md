@@ -12,7 +12,13 @@ _You don’t have to be perfect to be powerful. You just have to begin._
 
 
 ## ✨ What This Series Is: 
-A soul-crafted series for freelancers, content creators, and self-taught marketers who are tired of robotic courses and recycled jargon. This is content strategy taught through curiosity, not chaos — where keyword research feels like discovery, blog planning feels like empathy, and writing prompts feel like soft doors opening in the mind. Every file in this series is a gentle companion, not a lecture — a whisper from Jamalu reminding you: you don’t have to be perfect to be powerful. You just have to begin.
+A soul-crafted series for **freelancers**, **content creators**, and **self-taught marketers** who are tired of robotic courses and recycled jargon.  
+This is **content strategy** taught through **curiosity**, not chaos — where **keyword research** feels like discovery, **blog planning** feels like empathy,  
+and **writing prompts** feel like soft doors opening in the mind.
+
+Every file in this series is a **gentle companion**, not a lecture —  
+a whisper from **Jamalu** reminding you:  
+_You don’t have to be perfect to be powerful. You just have to begin._
 
 These 6 files are your soft starter pack:
 
