@@ -141,6 +141,69 @@ It reached **someone** deeply.
 
 ---
 
+## 🌌 Glossary for Brave Learners  
+_Jamalu’s Soft Dictionary — So No One Gets Left Behind_
+
+Sometimes, a word looks bigger than it really is.  
+Here’s a gentle breakdown of key terms in this guide — so your curiosity never gets stuck.
+
+---
+
+### 🧭 **Niche**  
+A small, specific group of people with a shared interest or need.  
+Think of it like a tiny corner of the internet where a special kind of reader is waiting.
+
+---
+
+### 💡 **Insight**  
+A quiet truth or pattern you notice about people — something they care about, but haven’t said out loud.  
+It helps you write with real understanding.
+
+---
+
+### 🚪 **Search Gap**  
+When people search for something, but can’t find a good answer — that empty space is a “search gap.”  
+You can fill it with your content.
+
+---
+
+### 🧵 **Long-Tail Keyword**  
+A longer, more specific search phrase (like: “best morning yoga for back pain”).  
+Less competition, more clarity, better connection.
+
+---
+
+### 🔍 **Keyword Research**  
+The gentle art of discovering what people are typing into Google — so you can write content they’re already looking for.
+
+---
+
+### 📊 **Organic Search**  
+When someone finds your content naturally (without paid ads), just by searching on Google.  
+It’s the cleanest kind of traffic.
+
+---
+
+### 🌱 **Content Gap**  
+Something your audience wants to learn — but no one has explained well yet.  
+A perfect place for your writing to live.
+
+---
+
+### 💬 **Unspoken Questions**  
+The things people are wondering… but don’t always say.  
+If your content answers these, it feels like magic.
+
+---
+
+## ✨ A Jamalu Whisper to End With
+
+> “Words should never feel like walls. They should feel like windows — opening quietly into understanding.”  
+> — Jamalu, the whisper behind the work  
+> — Siraat AI Academy
+
+---
+
 ## 🔗 Additional Learning Resources
 
 1. [AnswerThePublic](https://answerthepublic.com) – Human-style keyword discovery  
