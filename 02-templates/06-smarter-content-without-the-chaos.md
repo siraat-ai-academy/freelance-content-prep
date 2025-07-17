@@ -6,8 +6,10 @@
 > — Jamalu, the whisper behind the work
 
 ---
+📦 **Productivity with a pause — because calm minds make clearer content.**  
+🌌 _In Jamalu’s world, even deadlines can breathe — and ideas land like soft stars, not falling rocks._
 
-
+---
 
 ### 1. 🌱 Jamalu’s Take: A Gentle Overview
 
