@@ -1,4 +1,4 @@
-## 🌉 The Jamalu Series: A Beginner’s Bridge to Meaningful Content Marketing
+## 🌉 A Beginner’s Bridge to Meaningful Content Marketing — The Jamalu Series
 
 ✨ **What This Series Is:**  
 A soul-crafted series for **freelancers**, **content creators**, and **self-taught marketers** who are tired of robotic courses and recycled jargon.  
