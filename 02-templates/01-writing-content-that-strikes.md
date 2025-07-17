@@ -128,6 +128,65 @@ Same intent — new timing, new tone. The second one **struck the reader’s mom
 
 ---
 
+## 🌌 Glossary for Brave Learners  
+_Jamalu’s Soft Dictionary — Because We All Start Somewhere_
+
+Some words in content marketing sound big — but they’re just gentle tools once you understand them.  
+Here’s a soft, no-pressure guide to the key terms in this note.
+
+---
+
+### 🧭 **Awareness Levels**  
+Different stages a reader or customer goes through before making a decision.  
+Good content “meets” them at the stage they’re already in.
+
+---
+
+### 💬 **Problem-Aware**  
+The reader knows something’s wrong… but doesn’t know the solution yet.  
+This is where empathy-based content works best.
+
+---
+
+### 💡 **Solution-Aware**  
+The reader is actively exploring possible ways to fix their problem.  
+You offer tutorials, comparisons, and honest options here.
+
+---
+
+### 📣 **Call to Action (CTA)**  
+A simple sentence that tells the reader what to do next.  
+(Like: “Download now,” or “Start your free trial.”)
+
+---
+
+### 🔍 **Emotional Insight**  
+Not just what someone searches — but *why* they’re searching.  
+This is how you write content that “feels like it gets them.”
+
+---
+
+### 🧠 **Content Fit**  
+When your words match your reader’s current mindset and emotion.  
+It’s the difference between being read vs. being remembered.
+
+---
+
+### 🕰️ **Timing Fit**  
+Publishing a piece of content when it’s most relevant or needed.  
+This creates connection, not just clicks.
+
+---
+
+## ✨ A Jamalu Whisper to End With
+
+> “Words become powerful not because they’re perfect —  
+but because they arrive softly, at the right moment.”  
+— Jamalu, the whisper behind the work  
+— Siraat AI Academy
+
+---
+
 ## 🔗 Additional Learning Resources
 
 1. [Google’s Guide to Helpful Content](https://developers.google.com/search/blog/2022/08/helpful-content-update)  
