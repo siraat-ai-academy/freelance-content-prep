@@ -42,7 +42,7 @@ and the one many others now walk,
 ---
 
 ## ✨ What This Series Is: 
-A learner-first, heart-first collection of content marketing wisdom — rewritten for freelancers and beginners.
+A soul-crafted series for freelancers, content creators, and self-taught marketers who are tired of robotic courses and recycled jargon. This is content strategy taught through curiosity, not chaos — where keyword research feels like discovery, blog planning feels like empathy, and writing prompts feel like soft doors opening in the mind. Every file in this series is a gentle companion, not a lecture — a whisper from Jamalu reminding you: you don’t have to be perfect to be powerful. You just have to begin.
 
 These 6 files are your soft starter pack:
 
