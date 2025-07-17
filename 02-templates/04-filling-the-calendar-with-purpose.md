@@ -120,6 +120,85 @@ The client loved it — and asked her to plan their entire Q2 calendar.
 > — **Siraat AI Academy**
 
 ---
+## 🌌 Glossary for Brave Learners  
+_Jamalu’s Soft Dictionary — So No One Gets Left Behind_
+
+Sometimes, a word looks bigger than it really is.  
+Here’s a gentle breakdown of key terms in this guide — so your curiosity never gets stuck.
+
+---
+
+### 🧭 **Search-Based Planning**  
+Planning your content around **real questions** people are already typing into Google — instead of random ideas or gut feeling.
+
+> “Write what they’re already searching for — not just what you feel like writing.”
+
+---
+
+### 📅 **Content Calendar**  
+A visual map that shows when and what you’re going to publish.
+
+> “It’s not about being busy — it’s about showing up at the right time.”
+
+---
+
+### 🪴 **Content Pillars**  
+Big, recurring topics you want to be known for — like “email marketing,” “freelancing,” or “nutrition for working moms.”
+
+> “Think of them as the strong roots of your content tree.”
+
+---
+
+### 🧵 **Long-Tail Keyword**  
+A longer, more specific keyword like “how to start freelance writing in 2025” — lower competition, higher clarity.
+
+> “These are the quiet keywords that actually lead to loyal readers.”
+
+---
+
+### 🔗 **Topic Clustering**  
+Writing many helpful pieces around one theme — and linking them together.
+
+> “Like building a village of helpful content — where every blog supports the other.”
+
+---
+
+### 🧠 **Search Intent**  
+The reason behind a search — are they curious, confused, comparing, or ready to act?
+
+> “If you know what they’re feeling, you’ll know what to say.”
+
+---
+
+### 📈 **SEO Difficulty**  
+A score that tells you how competitive a keyword is.
+
+> “High difficulty = crowded highway. Low difficulty = a quiet shortcut to real results.”
+
+---
+
+### 💡 **Keyword Listening**  
+Tuning in to the real language your audience uses when they talk or search.
+
+> “Don’t just write for keywords — write like you’re part of the conversation.”
+
+---
+
+### 📊 **Organic Search**  
+When people find your content naturally through search — without paid ads.
+
+> “It’s like your content quietly earning trust, one search at a time.”
+
+---
+
+## ✨ A Jamalu Whisper to End With
+
+> “When you understand the meaning behind the word —  
+> the word becomes your friend, not your fear.”  
+> — Jamalu, the whisper behind the work  
+> — Siraat AI Academy
+
+---
 
 
 ### 🔗 Additional Learning Resources
