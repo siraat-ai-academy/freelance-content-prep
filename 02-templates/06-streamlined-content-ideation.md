@@ -8,6 +8,7 @@
 ---
 
 
+
 ### 1. 🌱 Jamalu’s Take: A Gentle Overview
 
 When you first start content writing, coming up with ideas can feel like digging through sand with a spoon. One keyword at a time. Slow. Tiring.
