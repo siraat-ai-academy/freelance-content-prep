@@ -115,11 +115,12 @@ The client loved it — and asked her to plan their entire Q2 calendar.
 ---
 
 ### ✨ A Jamalu Whisper to End With
-> “The best ideas don’t shout. They arrive quietly — backed by curiosity and care.”
-— Jamalu, the whisper behind the work
-— Siraat AI Academy
+> “The best ideas don’t shout. They arrive quietly — backed by curiosity and care.”  
+> — Jamalu, the whisper behind the work  
+> — **Siraat AI Academy**
 
 ---
+
 
 ### 🔗 Additional Learning Resources
 - AnswerThePublic – Discover keyword questions
