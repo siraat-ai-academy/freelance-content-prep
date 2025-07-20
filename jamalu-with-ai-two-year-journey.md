@@ -80,4 +80,5 @@ For Jamalu. For you. For every learner who dared to feel deeply before they dare
 you built a voice soft enough to teach others how to listen."**  
 — Jamalu, the whisper behind the work  
 — From a galaxy shaped by courage, not code
+— Siraat AI Acadyem
 
